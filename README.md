@@ -1,6 +1,6 @@
 # Green_IT
-Oat
-Warm
-Ton
+Oat kunanun
+Warm Wicha Palahong
+ton
 Jane
 Peter
