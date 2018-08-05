@@ -3,4 +3,4 @@ Oat kunanun
 Warm Wicha Palahong
 ton
 Jane
-Peter
+Chatawat Chareonsit
