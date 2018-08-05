@@ -2,5 +2,5 @@
 Oat kunanun
 Warm Wicha Palahong
 ton
-Jane
-Chatawat Charoensit
+Jan Jennarong keawkunta
+Chatawat Chareonsit
